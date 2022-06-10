@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-- ⚡ je déteste Milad :(((( ---> miladteherany
+- ⚡ je déteste Milad
 
 
 
